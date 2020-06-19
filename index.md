@@ -15,3 +15,5 @@ Hinter Batman verbirgt sich der Milliardär Bruce Wayne. Als Kind musste Bruce W
 >„Und das wäre?“
 
 >„Zu einer Legende, Mr. Wayne.“
+
+<img src=https://www.flickr.com/photos/buggs/13915719570/>
