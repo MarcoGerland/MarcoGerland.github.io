@@ -9,3 +9,9 @@ Hinter Batman verbirgt sich der Milliardär Bruce Wayne. Als Kind musste Bruce W
 * Ehrlich
 * Kompromisslos
 
+
+>"Aber wenn man mehr als einen Menschen aus sich macht, wenn man sich einem Ideal verschreibt und >wenn keiner Sie aufhalten kann, dann werden Sie zu etwas gänzlich anderem.“
+
+>„Und das wäre?“
+
+>„Zu einer Legende, Mr. Wayne.“
